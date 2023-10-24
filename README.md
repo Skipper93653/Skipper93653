@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Skipper93653
 - 👀 I’m interested in video games.
-- 🌱 I’m currently learning Computer Science for one of my A-Levels.
+- 🌱 I’m currently studying Theoretical Physics and Applied Mathematics at the University of Birmingham.
 - 📫 How to reach me - Discord: Skipper93653#7600, [Discord Server](https://discord.gg/NCKtWuJUcC)
 
 <!---
